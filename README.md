@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sepi1993
-- 👀 I’m interested in ...animal
+- 👀 I’m interested in ...animal..
 - 🌱 I’m currently learning ...psycology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
